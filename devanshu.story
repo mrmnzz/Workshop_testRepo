@@ -10,4 +10,4 @@ He did not came to college today .
 
 Spelling Mistakes
 
-I m so kewl . I go to bar evrydy and i wrt lk ths .
+I am so cool . I go to bar evrydy and i wrt lk ths .
