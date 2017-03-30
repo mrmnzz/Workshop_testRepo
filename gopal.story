@@ -1,1 +1,1 @@
-Hi my name is gopal. I loves grapes.
+Hi my name is gopal. I love grapes.
